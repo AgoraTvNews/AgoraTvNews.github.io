@@ -1,6 +1,6 @@
 <h1 align="center"><img alt="BANNER1" src="https://i.imgur.com/QWJjV0Q.png" width="1025" />
 <h1 align="center">AGORA TV FAKE NEWS</h1>
-<h1 align="center"><img alt="BANNER2a" src="https://i.imgur.com/MKGLlNT.png" width="310" /><img alt="BANNER2b" src="https://i.imgur.com/omoNRpC.png" width="390" /><img alt="BANNER2c" src="https://i.imgur.com/MKGLlNT.png" width="310"</h1>
+<h1 align="center"><img alt="BANNER2a" src="https://i.imgur.com/MKGLlNT.png" width="200" /><img alt="BANNER2b" src="https://i.imgur.com/omoNRpC.png" width="390" /><img alt="BANNER2c" src="https://i.imgur.com/MKGLlNT.png" width="200"</h1>
 
 ##### 💩 *[#Bullshit](http://creationbodo.free.fr/agoratv) [#Morons](http://creationbodo.free.fr/agoratv) [#FakeNews](http://creationbodo.free.fr/agoratv) [#Obscurantism](http://creationbodo.free.fr/agoratv) [#Idolatry](http://creationbodo.free.fr/agoratv) [#Hipocrisy](http://creationbodo.free.fr/agoratv) [#Superstitions](http://creationbodo.free.fr/agoratv) [#Qanons](http://creationbodo.free.fr/agoratv)* 💩
 
