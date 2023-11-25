@@ -4,7 +4,7 @@
 
 
 ### 🇨🇭**Welcome to the kingdom of Qanons stupidity and obscurentism in the heart of Switzerland**🇨🇭
-##### 🤮 *https://agoratv.ch | http://agoratvnews.com | https://1291.one | https://actions-suisse.ch* 🤮
+##### 🤮 *[https://agoratv.ch](https://agoratv.ch) | [http://www.agoratvnews.com](http://www.agoratvnews.com) | [https://1291.one](https://1291.one) | [https://actions-suisse.ch](https://actions-suisse.ch)* 🤮
 
 
 ***A world full of delusional fools, persecuted by Satanist Pedocriminal*** 
