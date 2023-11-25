@@ -1,11 +1,10 @@
 
 # ![](https://i.imgur.com/QWJjV0Q.png) ![](https://i.imgur.com/MKGLlNT.png)**AGORA TV FAKE NEWS**![](https://i.imgur.com/MKGLlNT.png) 
-#### 💩 *#Bullshit #Morons #FakeNews #Obscurantism #Idolatry #Hipocrisy #Superstitions #Qanons* 💩
+##### 💩 *#Bullshit #Morons #FakeNews #Obscurantism #Idolatry #Hipocrisy #Superstitions #Qanons* 💩
 
 
 ### 🇨🇭**Welcome to the kingdom of Qanons stupidity and obscurentism in the heart of Switzerland**🇨🇭
-#### 🤮 *https://agoratv.ch  /  http://agoratvnews.com* 🤮
-#### 💩 *https://1291.one  /  https://actions-suisse.ch* 💩
+##### 🤮 *https://agoratv.ch | http://agoratvnews.com | https://1291.one | https://actions-suisse.ch* 🤮
 
 
 ***A world full of delusional fools, persecuted by Satanist Pedocriminal*** 
