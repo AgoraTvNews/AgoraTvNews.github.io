@@ -1,5 +1,5 @@
 
-# ![](https://i.imgur.com/QWJjV0Q.png) ![](https://i.imgur.com/MKGLlNT.png) 🔥**AGORA TV FAKE NEWS**🔥 ![](https://i.imgur.com/MKGLlNT.png) 
+# ![](https://i.imgur.com/QWJjV0Q.png) ![](https://i.imgur.com/MKGLlNT.png)🔥**AGORA TV FAKE NEWS**🔥![](https://i.imgur.com/MKGLlNT.png) 
 #
 # 🇨🇭***Welcome to the kingdom of Qanons stupidity***🇨🇭
 # 🔥***and obscurentism in the heart of Switzerland***🔥
