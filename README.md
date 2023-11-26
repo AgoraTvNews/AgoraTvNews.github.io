@@ -36,8 +36,11 @@
 <img alt="Anti-Christ-lulz" src="https://i.imgur.com/wJ8O2Tq.png" width="800" />
 <img alt="LOPEZ1" src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExeHJsb2NkeGxtazdrbHhxdmpienU2endwajZtenhyY3MydXZoenZhdCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/EnzJLxbJKWf0I597QJ/giphy.gif" width="800" />
 <h5 align="center"><i>Yan Lopez, a scumbag who threatens and harasses people who denounce his pedophile activities with the AgoraTV Amish mafia</i></h5>
-<img alt="Frammery001" src="https:// " width="800" />
-<h5 align="center"><i>Chloe Frammery, an early Qanon who is trying to enter politics after being fired from her teaching job for making revisionist and Holocaust denial comments to her pupils, accompanied here by her well-known anti-Semitic friend Dieudonné Mbala Mbala</i></h5>
+<img alt="Frammery001" src="https://i.imgur.com/Fw05Dhf.png" width="800" />
+<h5 align="center"><i>Chloe Frammery, an early Qanon who is trying to enter politics<br /> 
+  after being fired from her teaching job for making revisionist and <br />
+  Holocaust denial comments to her pupils<br /> 
+  accompanied here by her well-known anti-Semitic friend Dieudonné Mbala Mbala</i></h5>
 
 <img alt="BANNER1" src="https://i.imgur.com/QWJjV0Q.png" width="800" /> 
 ![]()
