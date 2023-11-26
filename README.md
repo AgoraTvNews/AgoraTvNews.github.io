@@ -2,23 +2,25 @@
 <img alt="BANNER1" src="https://i.imgur.com/QWJjV0Q.png" width="1024" /> 
 <h1 align="center"><img alt="BANNER2a" src="https://i.imgur.com/MKGLlNT.png" width="136">AGORA TV FAKE NEWS<img alt="BANNER2a" src="https://i.imgur.com/MKGLlNT.png" width="136"><img alt="BANNER2b" src="https://i.imgur.com/omoNRpC.png" width="640"></h1>
 <div align="center">
-<h3><a href="http://creationbodo.free.fr/agoratv"><i>#Bullshit</i> <a href="http://creationbodo.free.fr/agoratv"><i>#Morons</i> <a href="http://creationbodo.free.fr/agoratv"><i>#FakeNews</i> <a href="http://creationbodo.free.fr/agoratv"><i>#Obscurantism</i> 
+<a href="http://creationbodo.free.fr/agoratv"><i>#Bullshit</i> <a href="http://creationbodo.free.fr/agoratv"><i>#Morons</i> <a href="http://creationbodo.free.fr/agoratv"><i>#FakeNews</i> <a href="http://creationbodo.free.fr/agoratv"><i>#Obscurantism</i> 
 <a href="http://creationbodo.free.fr/agoratv"><i>#Idolatry</i> <a href="http://creationbodo.free.fr/agoratv"><i>#Hipocrisy</i> <a href="http://creationbodo.free.fr/agoratv"><i>#Superstitions</i> <a href="http://creationbodo.free.fr/agoratv"><i>#Qanons</i></a>
-<h1><head align="center">🇨🇭 Welcome to the kingdom of Qanons stupidity and obscurentism in the heart of Switzerland 🇨🇭</head></h1>
-<h3><a href="https://agoratv.ch"><i>https://agoratv.ch</i> | <a href="http://www.agoratvnews.com"><i>http://www.agoratvnews.com<i> <br /> <a href="https://1291.one"><i>https://1291.one</i> | <a href="https://actions-suisse.ch"><i>https://actions-suisse.ch</i></a></h3>
-<h3></h3>
-<h3 align="center"><i>A world full of delusional fools, persecuted by Satanist Pedocriminal Elites <br /> and the Deep State who try to silence them.</i></h3>
-<h3></h3>
-<h3 align="center"><i>They are the only ones who still hold the only inescapable existential truth, <br /> to the detriment of all the ignoramuses who populate this world.</i></h3>
-<h3></h3>
-<h3 align="center"><i>They have a special connection with the divine, approaching the Gods, far removed <br /> from the fallen angels in perdition who indulge our age.</i></h3>
-<h3></h3>
-<h3 align="center"><i>This boundless intelligence and foresight gives them inescapable power and authority over us <br /> poor lost sheep, corrupted and possessed by the devil himself and his legion of demons.</i></h3>
-<h3></h3>
-<h3 align="center"><i>Pray for us poor sinners, for like the biblical Sodom and Gomorrah, you must <br /> prepare for an imminent fall into the fury of Hell's fires.</i></h3>
-<h3></h3>
-<h3 align="center"><i>We can already hear the trumpets of Jericho sounding, announcing the <br /> beginning of the end of times, which will not be eternal for everyone.</i></h3>
-
+  <br /> 
+<h3><head align="center">🇨🇭 Welcome to the kingdom of Qanons stupidity and obscurentism in the heart of Switzerland 🇨🇭</head></h3>
+  <br />
+<h5><a href="https://agoratv.ch"><i>https://agoratv.ch</i> | <a href="http://www.agoratvnews.com"><i>http://www.agoratvnews.com<i> <br /> <a href="https://1291.one"><i>https://1291.one</i> | <a href="https://actions-suisse.ch"><i>https://actions-suisse.ch</i></a></h5>
+  <br /> 
+<h5 align="center"><i>A world full of delusional fools, persecuted by Satanist Pedocriminal Elites <br /> and the Deep State who try to silence them.</i></h5>
+  <br />
+<h5 align="center"><i>They are the only ones who still hold the only inescapable existential truth, <br /> to the detriment of all the ignoramuses who populate this world.</i></h5>
+  <br />
+<h5 align="center"><i>They have a special connection with the divine, approaching the Gods, far removed <br /> from the fallen angels in perdition who indulge our age.</i></h5>
+  <br />
+<h5 align="center"><i>This boundless intelligence and foresight gives them inescapable power and authority over us <br /> poor lost sheep, corrupted and possessed by the devil himself and his legion of demons.</i></h5>
+  <br />  
+<h5 align="center"><i>Pray for us poor sinners, for like the biblical Sodom and Gomorrah, you must <br /> prepare for an imminent fall into the fury of Hell's fires.</i></h5>
+  <br />
+<h5 align="center"><i>We can already hear the trumpets of Jericho sounding, announcing the <br /> beginning of the end of times, which will not be eternal for everyone.</i></h5>
+  <br />
 🔥🔥🔥   ***666***   🔥🔥🔥
 
 #
