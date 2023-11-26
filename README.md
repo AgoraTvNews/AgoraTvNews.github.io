@@ -1,16 +1,11 @@
-<h1 align="center"><img alt="BANNER1" src="https://i.imgur.com/QWJjV0Q.png" width="1025" />
-  
-<h1 align="center">AGORA TV FAKE NEWS</h1>
-
-<h2 align="center"> <img alt="BANNER2a" src="https://i.imgur.com/MKGLlNT.png" width="90"> <img alt="BANNER2b" src="https://i.imgur.com/omoNRpC.png" width="390"> <img alt="BANNER2c" src="https://i.imgur.com/MKGLlNT.png" width="90" />
-  
-<div align="center">  
-<h3>💩<a href="http://creationbodo.free.fr/agoratv"><i>#Bullshit</i> <a href="http://creationbodo.free.fr/agoratv"><i>#Morons</i> <a href="http://creationbodo.free.fr/agoratv"><i>#FakeNews</i> <a href="http://creationbodo.free.fr/agoratv"><i>#Obscurantism</i> 
-<a href="http://creationbodo.free.fr/agoratv"><i>#Idolatry</i> <a href="http://creationbodo.free.fr/agoratv"><i>#Hipocrisy</i> <a href="http://creationbodo.free.fr/agoratv"><i>#Superstitions</i> <a href="http://creationbodo.free.fr/agoratv"><i>#Qanons</i></a>💩</h3>
-
-
-### 🇨🇭**Welcome to the kingdom of Qanons stupidity and obscurentism in the heart of Switzerland**🇨🇭
-##### 🤮 *[https://agoratv.ch](https://agoratv.ch) | [http://www.agoratvnews.com](http://www.agoratvnews.com) | [https://1291.one](https://1291.one) | [https://actions-suisse.ch](https://actions-suisse.ch)* 🤮
+<p align="center">
+<img alt="BANNER1" src="https://i.imgur.com/QWJjV0Q.png" width="1024" /> 
+<h1 align="center"><img alt="BANNER2a" src="https://i.imgur.com/MKGLlNT.png" width="136">AGORA TV FAKE NEWS<img alt="BANNER2a" src="https://i.imgur.com/MKGLlNT.png" width="136"><img alt="BANNER2b" src="https://i.imgur.com/omoNRpC.png" width="640"></h1>
+<div align="center">
+<h3><a href="http://creationbodo.free.fr/agoratv"><i>#Bullshit</i> <a href="http://creationbodo.free.fr/agoratv"><i>#Morons</i> <a href="http://creationbodo.free.fr/agoratv"><i>#FakeNews</i> <a href="http://creationbodo.free.fr/agoratv"><i>#Obscurantism</i> 
+<a href="http://creationbodo.free.fr/agoratv"><i>#Idolatry</i> <a href="http://creationbodo.free.fr/agoratv"><i>#Hipocrisy</i> <a href="http://creationbodo.free.fr/agoratv"><i>#Superstitions</i> <a href="http://creationbodo.free.fr/agoratv"><i>#Qanons</i></a></h3>
+<h1><head align="center">🇨🇭 Welcome to the kingdom of Qanons stupidity and obscurentism in the heart of Switzerland 🇨🇭</head></h1>
+<h3><a href="https://agoratv.ch"><i>https://agoratv.ch</i> | <a href="http://www.agoratvnews.com"><i>http://www.agoratvnews.com<i> | <a href="https://1291.one"><i>https://1291.one</i> | <a href="https://actions-suisse.ch"><i>https://actions-suisse.ch</i></a></h3>
 
 
 ***A world full of delusional fools, persecuted by Satanist Pedocriminal*** 
