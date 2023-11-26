@@ -24,14 +24,13 @@
                       And authority over us Poor lost sheep<br />
                       Corrupted and possessed by the devil<br />
                       Himself and his legion of demons<br />
-                      Biblical Sodom and Gomorrah
-                      <br /> 
-                      You must prepare for An imminent 
-                      fall Into the fury of Hell's 
-fires<br />
-                      We can already hear the trumpets of Jericho<br />
-                      Sounding, announcing the beginning of the endf<br />
-                      Otimes which will not be eternal for everyone</i></h4>
+                      Biblical Sodom and Gomorrah<br /> 
+                      <br />You must prepare for an<br />
+                      imminent fall into the fury of<br />
+                      Hell's fires. We can already hear the <br />
+                      trumpets of Jericho sounding, announcing<br />
+                      The beginning of the end of times which<br />
+                      will not be eternal for everyone</i></h4>
 <h3 align="center"><head>🔥🔥🔥666🔥🔥🔥</head></h3>
 <div align="center">
 <img alt="Anti-Christ-lulz" src="https://i.imgur.com/wJ8O2Tq.png" width="800" />
