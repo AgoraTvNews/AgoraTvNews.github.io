@@ -8,16 +8,18 @@
 <a href="http://creationbodo.free.fr/agoratv"><i>#Idolatry</i> <a href="http://creationbodo.free.fr/agoratv"><i>#Hipocrisy</i> <a href="http://creationbodo.free.fr/agoratv"><i>#Superstitions</i> <a href="http://creationbodo.free.fr/agoratv"><i>#Qanons</i></a>
 <h3><head align="center">🇨🇭 Welcome to the kingdom of Qanons stupidity and 🇨🇭<br /> obscurentism in the heart of Switzerland</head></h3>
 <h5><a href="https://agoratv.ch"><i>https://agoratv.ch</i> <a href="http://www.agoratvnews.com"><i>http://www.agoratvnews.com<i> <br /> <a href="https://1291.one"><i>https://1291.one</i> <a href="https://actions-suisse.ch"><i>https://actions-suisse.ch</i></a>
-<h4 align="center"><i>A world full of delusional fools, persecuted by Satanist Pedocriminal Elites and the Deep State who try to silence them</i></h5>
-<h4 align="center"><i>They are the only ones who still hold the only inescapable existential truth, to the detriment of all the ignoramuses who populate this world</i></h4>
-<h4 align="center"><i>They have a special connection with the divine, approaching the Gods, far removed from the fallen angels in perdition who indulge our age</i></h4>
-<h4 align="center"><i>This boundless intelligence and foresight gives them inescapable power and authority over us</i></h4>
-<h4 align="center"><i>Poor lost sheep, corrupted and possessed by the devil himself and his legion of demons.</i></h4>
+<h4 align="center"><i>A world full of delusional fools, persecuted by Satanist</i></h5>
+<h4 align="center"><i>Pedocriminal Elites and the Deep State who try to silence them</i></h5>
+<h4 align="center"><i>They are the only ones who still hold the only inescapable existential truth</i></h4>
+<h4 align="center"><i>To the detriment of all the ignoramuses who populate this world</i></h4>
+<h4 align="center"><i>They have a special connection with the divine, approaching the Gods</i></h4>
+<h4 align="center"><i>Far removed from the fallen angels in perdition who indulge our age</i></h4>
+<h4 align="center"><i>This boundless intelligence and foresight gives them inescapable power and authority over</i></h4>
+<h4 align="center"><i>Us Poor lost sheep, corrupted and possessed by the devil himself and his legion of demons</i></h4>
 <h4 align="center"><i>Pray for us poor sinners, for like the biblical Sodom and Gomorrah</i></h4>
 <h4 align="center"><i>You must prepare for an imminent fall into the fury of Hell's fires</i></h4>
 <h4 align="center"><i>We can already hear the trumpets of Jericho sounding, announcing</i></h4>
 <h4 align="center"><i>The beginning Of the end of times which will not be eternal for everyone</i></h4>
-
 <h1 align="center"><head>🔥🔥🔥🔥🔥🔥🔥666🔥🔥🔥🔥🔥🔥🔥</head></h1>
 
 <h1 align="center"><img alt="LOPEZ1" src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExeHJsb2NkeGxtazdrbHhxdmpienU2endwajZtenhyY3MydXZoenZhdCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/EnzJLxbJKWf0I597QJ/giphy.gif" width="800"</h1>
