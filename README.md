@@ -5,7 +5,7 @@
 <a href="http://creationbodo.free.fr/agoratv"><i>#Bullshit</i> <a href="http://creationbodo.free.fr/agoratv"><i>#Morons</i> <a href="http://creationbodo.free.fr/agoratv"><i>#FakeNews</i> <a href="http://creationbodo.free.fr/agoratv"><i>#Obscurantism</i> 
 <a href="http://creationbodo.free.fr/agoratv"><i>#Idolatry</i> <a href="http://creationbodo.free.fr/agoratv"><i>#Hipocrisy</i> <a href="http://creationbodo.free.fr/agoratv"><i>#Superstitions</i> <a href="http://creationbodo.free.fr/agoratv"><i>#Qanons</i></a>
 <h3><head align="center">🇨🇭 Welcome to the kingdom of Qanons stupidity and 🇨🇭<br /> obscurentism in the heart of Switzerland</head></h3>
-<h5><a href="https://agoratv.ch"><i>https://agoratv.ch</i> | <a href="http://www.agoratvnews.com"><i>http://www.agoratvnews.com<i> <br /> <a href="https://1291.one"><i>https://1291.one</i> | <a href="https://actions-suisse.ch"><i>https://actions-suisse.ch</i></a></h5>
+<h5><a href="https://agoratv.ch"><i>https://agoratv.ch</i> <a href="http://www.agoratvnews.com"><i>http://www.agoratvnews.com<i> <br /> <a href="https://1291.one"><i>https://1291.one</i> <a href="https://actions-suisse.ch"><i>https://actions-suisse.ch</i></a>
 <h5 align="center"><i>A world full of delusional fools, persecuted by Satanist Pedocriminal Elites <br /> and the Deep State who try to silence them.</i></h5>
 <h5 align="center"><i>They are the only ones who still hold the only inescapable existential truth, <br /> to the detriment of all the ignoramuses who populate this world.</i></h5>
 <h5 align="center"><i>They have a special connection with the divine, approaching the Gods, far removed <br /> from the fallen angels in perdition who indulge our age.</i></h5>
