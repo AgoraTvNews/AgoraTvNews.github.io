@@ -20,7 +20,7 @@
 <h4 align="center"><i>You must prepare for an imminent fall into the fury of Hell's fires</i></h4>
 <h4 align="center"><i>We can already hear the trumpets of Jericho sounding, announcing</i></h4>
 <h4 align="center"><i>The beginning Of the end of times which will not be eternal for everyone</i></h4>
-<h1 align="center"><head>🔥🔥🔥🔥🔥🔥🔥666🔥🔥🔥🔥🔥🔥🔥</head></h1>
+<h3 align="center"><head>🔥🔥🔥666🔥🔥🔥</head></h3>
 
 <h1 align="center"><img alt="LOPEZ1" src="https://media.giphy.com/media/v1.Y2lkPTc5MGI3NjExeHJsb2NkeGxtazdrbHhxdmpienU2endwajZtenhyY3MydXZoenZhdCZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/EnzJLxbJKWf0I597QJ/giphy.gif" width="800"</h1>
   <h5 align="center"><i>Yan Lopez, a scumbag who threatens and harasses people who denounce his pedophile activities with the AgoraTV Amish mafia</i></h5>
