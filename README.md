@@ -2,7 +2,7 @@
   
 <h1 align="center">AGORA TV FAKE NEWS</h1>
 
-<h2 align="center"><img alt="BANNER2a" src="https://i.imgur.com/MKGLlNT.png" width="90" /> <img alt="BANNER2b" src="https://i.imgur.com/omoNRpC.png" width="390" /> <img alt="BANNER2a" src="https://i.imgur.com/MKGLlNT.png" width="90"</h2>
+<h2 align="center"> <img alt="BANNER2a" src="https://i.imgur.com/MKGLlNT.png" width="90" /> <img alt="BANNER2b" src="https://i.imgur.com/omoNRpC.png" width="390" /> <img alt="BANNER2a" src="https://i.imgur.com/MKGLlNT.png" width="90" />
   
 <div align="center">  
 <h3>💩<a href="http://creationbodo.free.fr/agoratv"><i>#Bullshit</i> <a href="http://creationbodo.free.fr/agoratv"><i>#Morons</i> <a href="http://creationbodo.free.fr/agoratv"><i>#FakeNews</i> <a href="http://creationbodo.free.fr/agoratv"><i>#Obscurantism</i> 
