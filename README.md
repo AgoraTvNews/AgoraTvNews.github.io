@@ -7,18 +7,31 @@
 <a href="http://creationbodo.free.fr/agoratv"><i>#Idolatry</i> <a href="http://creationbodo.free.fr/agoratv"><i>#Hipocrisy</i> <a href="http://creationbodo.free.fr/agoratv"><i>#Superstitions</i> <a href="http://creationbodo.free.fr/agoratv"><i>#Qanons</i></a>
 <h3><head align="center">🇨🇭 Welcome to the kingdom 🇨🇭<br />🇨🇭 Of Qanons stupidity and obscurentism 🇨🇭<br />🇨🇭 In the heart of Switzerland 🇨🇭</head></h3>
 <h5><a href="https://agoratv.ch"><i>https://agoratv.ch</i> <a href="http://www.agoratvnews.com"><i>http://www.agoratvnews.com<i> <br /> <a href="https://1291.one"><i>https://1291.one</i> <a href="https://actions-suisse.ch"><i>https://actions-suisse.ch</i></a>
-<h4 align="center"><i>A world full of delusional fools, persecuted by Satanist<br />
-                      Pedocriminal Elites and the Deep State who try to silence them<br />
-                      They are the only ones who still hold the only inescapable existential<br />
-                      Truth to the detriment of all the ignoramuses who populate this world<br />
-                      They have a special connection with the divine, approaching the Gods<br />
-                      Far removed from the fallen angels in perdition who indulge our age<br />
-                      This boundless intelligence and foresight gives them inescapable power  <br />
-                      And authority over us Poor lost sheep, corrupted and possessed by the devil<br />
-                      Himself and his legion of demons, pray for us poor sinners, for like the biblical<br />
-                      Sodom and Gomorrah you must prepare for an imminent fall into the fury of Hell's fires<br />
-                      We can already hear the trumpets of Jericho sounding, announcing the beginning<br />
-                      Of the end of times which will not be eternal for everyone</i></h4>
+<h4 align="center"><i>A world full of delusional<br />
+  Fools persecuted by Satanist<br />
+                      Pedocriminal Elites and the Deep<br /> 
+                      State who try to silence them<br />
+                      <br /> They are the only ones who still<br />
+                      Hold the only inescapable existential<br />
+                      Truth to the detriment of all the Ignoramuses<br /> 
+                      Who populate this world<br />
+                      <br />They have a special connection with<br /> 
+                      The Divine approaching the Gods far <br />
+                      Removed from the fallen angels in<br /> 
+                      Perdition who indulge our age<br />
+                      <br />This boundless intelligence and<br /> 
+                      Foresight gives them inescapable power<br />
+                      And authority over us Poor lost sheep<br />
+                      Corrupted and possessed by the devil<br />
+                      Himself and his legion of demons<br />
+                      Biblical Sodom and Gomorrah
+                      <br /> 
+                      You must prepare for An imminent 
+                      fall Into the fury of Hell's 
+fires<br />
+                      We can already hear the trumpets of Jericho<br />
+                      Sounding, announcing the beginning of the endf<br />
+                      Otimes which will not be eternal for everyone</i></h4>
 <h3 align="center"><head>🔥🔥🔥666🔥🔥🔥</head></h3>
 <div align="center">
 <img alt="Anti-Christ-lulz" src="https://i.imgur.com/wJ8O2Tq.png" width="800" />
